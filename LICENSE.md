@@ -1,4 +1,4 @@
-# 
+# Novo IObit Uninstaller scripts para Mac OS | Gratuito IObit Uninstaller scripts para PC Windows. Com limpeza de cache e localizador de arquivos duplicados — otimizado para máximo desempenho em cada plataforma.
 
 
 
